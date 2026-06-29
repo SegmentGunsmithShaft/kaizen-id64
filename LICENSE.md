@@ -1,4 +1,4 @@
-
+instant Scripts for kaizen is the best kaizen Script, featuring invisibility and no cooldown. Safe and powerful for all your needs.
 
 
 
